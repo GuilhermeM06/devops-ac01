@@ -1,0 +1,1 @@
+Desejo atuar como desenvolvedor web a princípio como desenvolvedor front-end e depois trabalhar tanto com front-end quanto com back-end. E o tipo de empresa que eu gostaria de trabalhar é em empresas de desenvolvimento.
