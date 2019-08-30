@@ -1,7 +1,6 @@
 # Melhores atletas
-Scott Jurek
-Ronaldinho Gaucho
-Pelé
-shaquille o'neal
-
-
+César Cielo  
+Scott Jurek  
+Ronaldinho Gaucho  
+Pelé  
+shaquille o'neal  
