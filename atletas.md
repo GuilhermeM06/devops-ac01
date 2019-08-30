@@ -1,4 +1,3 @@
 # Melhores atletas
-Scott Jurek
-Ronaldinho Gaucho
+shaquille o'neal
 
